@@ -103,7 +103,7 @@ Email: dev.sadeem@gmail.com
 
 Support Server: https://discord.gg/kEMRwSGthr
 
-Shinpei — سياسة الخصوصية
+Shinpei سياسة الخصوصية
 
 آخر تحديث: 1 أكتوبر 2026
 
